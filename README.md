@@ -52,6 +52,12 @@
 <br>
 <br>
 
+### 🦁 **회의록**
+https://davemins.notion.site/3148fe3e0eab4fc5ac5f75baa5638474?pvs=4
+
+<br>
+<br>
+
 ### 🦁 **컨벤션**
 #### 2023.07.28
 
